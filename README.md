@@ -36,8 +36,8 @@ to analyzing complex datasets, I enjoy solving problems and continuously learnin
 
 ## 📫 Let’s Connect
 
-- 📧 Email: wajidullah11@gmail.com  
-- 💼 LinkedIn: [linkedin.com/in/wajidullah11](https://linkedin.com/in/wajidullah11)  
+- 📧 Email: wajidullahkhan566@gmail.com  
+- 💼 LinkedIn: (https://linkedin.com/in/wajidullah11)  
 - 🌐 Portfolio: *(https://www.behance.net/wajidwazir/projects)*  
 
 ---
